@@ -262,3 +262,14 @@ Sunday: evolve + sharpen
 
 
 If you want, I can build a **day-by-day schedule** or a **weekly timetable** that matches your college hours exactly.
+
+
+1 anime episode per week
+
+20 min manga on Sundays
+
+30 min walk with music
+
+One movie per month
+
+One evening break every 10–14 days
